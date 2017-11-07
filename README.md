@@ -1,2 +1,2 @@
 # faizan-is-the-best
-glat kaam karte nahi kisi ke baap se darte nahi
+tum zindagi se to nikal jaogi lekin dilse nhi niklogi
